@@ -1,0 +1,1 @@
+# AYAMAYA.github.io
